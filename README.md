@@ -4,8 +4,7 @@
 <div align="center">
 <img src="https://files.catbox.moe/79pl7l.jpg" width="750" height="350"> 
 
-> @rajapito777
-
+>flash warning for rentry
 
 
 <div align="center">
@@ -20,7 +19,6 @@
   
 ˗ˏˋ[𝕃𝕒𝕤𝕥.𝕗𝕞](https://www.last.fm/es/user/alanbirdy)ˎˊ˗___.˚✮ [ℝ𝕖𝕟𝕥𝕣𝕪](https://rentry.co/QuackityXD) ✮˚.‎___₊‧꒰[𝕊𝕚𝕟𝕘 𝕒𝕥𝕒?](https://pronouns.cc/@Matt_bellamy)꒱‧₊
  </div>
-
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
