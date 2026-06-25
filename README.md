@@ -17,7 +17,7 @@
   
 <div align="center">
   
-˗ˏˋ[𝕃𝕒𝕤𝕥.𝕗𝕞](https://www.last.fm/es/user/alanbirdy)ˎˊ˗___.˚✮ [ℝ𝕖𝕟𝕥𝕣𝕪](https://rentry.co/QuackityXD) ✮˚.‎___₊‧꒰[𝕊𝕚𝕟𝕘 𝕒𝕥𝕒?](https://pronouns.cc/@Matt_bellamy)꒱‧₊
+˗ˏˋ[𝕃𝕒𝕤𝕥.𝕗𝕞](https://www.last.fm/es/user/alanbirdy)ˎˊ˗___.˚✮ [ℝ𝕖𝕟𝕥𝕣𝕪](https://rentry.co/QuackityXD) ✮˚.‎___₊‧꒰𝕊𝕚𝕟𝕘 𝕒𝕥𝕒? (soon)꒱‧₊
  </div>
 
 <p align="center">
